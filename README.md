@@ -1,0 +1,1 @@
+Analisis Data: Penetrasi dan Kontribusi Internet di Pulau Sumatera" tersebut membahas tingkat penggunaan internet di berbagai provinsi di Pulau Sumatera, serta bagaimana masing-masing provinsi berkontribusi terhadap jumlah pengguna internet secara regional (Sumatera) dan nasional.
